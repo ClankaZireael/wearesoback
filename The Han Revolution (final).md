@@ -6,6 +6,8 @@ Is JFK a communist?
 No!
 
 Communism === not understanding economics === USSR
+
+
 Socialism === understands economics === CSP
 
 President: *Calvin Helios Leblanc Spencer*
